@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...asd
 - 📫 How to reach me ...
-- 😄 Pronouns: ...85
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...858551
+- ⚡ Fun fact: ...2526
 45
 <!---465fh
 retepol/retepol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
