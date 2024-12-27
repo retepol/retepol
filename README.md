@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...asd
 - 📫 How to reach me ...dh52663
 - 😄 Pronouns: ...85855112354
-- ⚡ Fun fact: ...2526
+- ⚡ Fun fact: ...2526sfd
 45wer
 <!---asd
 retepol/retepol is a ✨ special ✨ repository because its `README.md` (tcvfdhis file) appears on your GitHub profile.
