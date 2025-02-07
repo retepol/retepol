@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @retepol54552
+4848- 👋 Hi, I’m @retepol54552
 - 👀 I’m interested in ...t1441trgr
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...asd
