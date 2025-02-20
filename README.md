@@ -1,6 +1,6 @@
 4848- 👋 Hi, I’m @retepol54552
 - 👀 I’m interested in ...t1441trgr
-- 🌱 I’m currently learning ...zxvvxjmjmh
+- 🌱 I’m currently learning ...zxvvxjmjmhgfbf
 - 💞️ I’m looking to collaborate on ...asd5
 - 📫 How to reach me ...dh52663324rqwewq51erer85596+
 - 😄 Pronouns: ...85855112354dfgdt226664549563dfg262fsd
