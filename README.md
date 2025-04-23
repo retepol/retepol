@@ -2,7 +2,7 @@ vbnbnzed4848- 👋 Hi, I’m @retepol54552cbvvdf
 - 👀 I’m interested in ...t1441trgrfghfghdsc
 - 🌱 I’m currently learning ...zxvvxjmjmhgfbfxcvcvxxcvffvvfdt
 - 💞️ I’m looking to collaborate on ...asd5fddfwqdswhnh478
-- 📫 How to reach me ...dh52663324rqwewq51erer85596+wqdqwbfbfddss
+- 📫 How to reach me ...dh52663324rqwewq51erer85596+wqdqwbfbfddssfewefwd
 - 😄 Pronouns: ...85855112354dfgdt226664549563dfg262fsdxcghhgnhgghnvdss
 - ⚡ Fun fact: ...2526sfd11414sfddss1521623dfgfd
 45wer4596xfg56232fswaagvg
